@@ -1,1 +1,0 @@
-# jakhongir97.github.io
